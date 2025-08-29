@@ -1,2 +1,3 @@
 # DSA
 my hardcore skills will be shown here
+I know the path will not be easy , but after you try and try and try how much times will you fail?!! one day you will definately reach at the stairs of success... 
